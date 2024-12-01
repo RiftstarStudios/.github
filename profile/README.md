@@ -1,3 +1,3 @@
-# 🚀 Welcome to Riftstar Games Github
+# 🚀 Welcome to Riftstar Studios Github
 
 ### Let`s create game story together!
